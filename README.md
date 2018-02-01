@@ -1,1 +1,1 @@
-# SenpaiZarif.github.io
+# Memeology.github.io
